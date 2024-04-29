@@ -6,7 +6,7 @@
 > 
 > this github page will rarely get updated and if it does, the project in question will most likely become abandoned.
 > 
-> if you wanna message me or ask something, here's my discord: ilovefinlandcuzimfinnish
+> if you wanna message me or ask something, here's my discord: wyclgd
 >
 > and that's basically all i have to say. cya.
 > 
